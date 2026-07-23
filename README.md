@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Ke Yang
+### Hi there 👋 I'm Yang Ke
 
 🎓 智能建造 @ 长安大学 | 📧 yangke050926@163.com
 
