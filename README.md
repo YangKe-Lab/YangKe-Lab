@@ -1,6 +1,6 @@
 ### Hi there 👋 I'm Yang Ke
 
-🎓 智能建造 @ 长安大学 | 📧 yangke050926@163.com
+🎓 智能建造 @ 长安大学/华中科技大学 | 📧 yangke050926@163.com
 
 ---
 
